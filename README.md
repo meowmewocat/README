@@ -8,7 +8,7 @@
 
 ୨୧┇Gender: Female!!
 
-୨୧┇How many pets do I have? : 7 cats and 1 dog!!
+୨୧┇INT: YES!!! if i'm with friends then maybe, I'm also awkward so sorry about that.
 
 ୨୧┇websites : grr wip :3 
 
