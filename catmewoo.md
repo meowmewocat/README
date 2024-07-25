@@ -47,7 +47,7 @@ Am I cool or what? I love a lot of woman, I'm a superstar. "
 
 ୨୧┇DNI: the basic dni stuff.
 
-୨୧┇Extra: I'm silly trust!! anyways..  if you like lmk then maybe.. 
+୨୧┇Extra: I'm silly trust!! anyways..  if you like lego monkey kid then maybe.. 
 we can be friends :33  IF YOU GUYS WANT /NF NF !!  also I'm NOT good at comforting.. :(
 I'm also usually ( mostly ) around the lmk area! If not, then maybe at pjsekai!
 
