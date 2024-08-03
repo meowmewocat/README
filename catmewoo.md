@@ -52,4 +52,5 @@ we can be friends :33  IF YOU GUYS WANT /NF NF !!  also I'm NOT good at comforti
 I'm also usually ( mostly ) around the lmk area! If not, then maybe at pjsekai!
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣ 
