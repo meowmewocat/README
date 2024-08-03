@@ -14,9 +14,7 @@
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-" Got many money honey, I'm a superstar. 
-Have you seen my car? I know  a lot of people! I'm a superstar "
-
+[" silly "](https://file.garden/ZpIU1tGnsnK0DChu/wellalrightthen.png)
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 
@@ -35,8 +33,7 @@ CRK ( I used to play it ), RTC, RAMSHACKLE, DDLC, ETC!!
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-" I got a red Ferrai, I'm a superstar. I really like to party,
-Am I cool or what? I love a lot of woman, I'm a superstar. "
+[" RAAAHHHH "](https://file.garden/ZpIU1tGnsnK0DChu/ILLMAKEYOUSAYYHOWPROUDYOUAREOFME.png)
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
