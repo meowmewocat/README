@@ -14,7 +14,8 @@
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-[" silly "](https://file.garden/ZpIU1tGnsnK0DChu/wellalrightthen.png)
+[](https://file.garden/ZpIU1tGnsnK0DChu/wellalrightthen.png)
+
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 
@@ -33,7 +34,7 @@ CRK ( I used to play it ), RTC, RAMSHACKLE, DDLC, ETC!!
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-[" RAAAHHHH "](https://file.garden/ZpIU1tGnsnK0DChu/ILLMAKEYOUSAYYHOWPROUDYOUAREOFME.png)
+[](https://file.garden/ZpIU1tGnsnK0DChu/ILLMAKEYOUSAYYHOWPROUDYOUAREOFME.png)
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
