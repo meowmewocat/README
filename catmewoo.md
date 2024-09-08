@@ -29,8 +29,3 @@ CRK ( I used to play it ), RTC, RAMSHACKLE, DDLC, ETC!!
 
 
 # ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
-
-<img src="https://file.garden/ZpIU1tGnsnK0DChu/YAY.png" width="990" height="490" />
-
-
-# ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
