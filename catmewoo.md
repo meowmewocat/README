@@ -1,8 +1,3 @@
-
-# ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
-
-<img src="https://file.garden/ZpIU1tGnsnK0DChu/AW.png" width="990" height="490" />
-
 # ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
 
 
@@ -18,11 +13,6 @@ If you don't want to then just Cat!
 
 ୨୧┇age: MINOR.
 
-
-# ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
-
-
-<img src="https://file.garden/ZpIU1tGnsnK0DChu/sossillly.png" width="990" height="490" />
 
 # ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉
 
